@@ -1,2 +1,2 @@
 # CSCClubTest
-for CSC club
+for CSC club :)
